@@ -1,2 +1,0 @@
-# AGENCE-NGER
-pour entreprise
